@@ -2,4 +2,4 @@
 - 👀 I’m interested in Data Science and ML
 - 🌱 I’m currently learning SQL
 - 💞️ I’m looking to collaborate on this channel
-- 📫 How to reach me mahmoud.oneplus3@gmail.com
+- 📫 How to reach me mahmoud.i.alwa7sh@gmail.com
